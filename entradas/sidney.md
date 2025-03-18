@@ -18,3 +18,5 @@ Sídney, la ciudad más grande de Australia, es un destino vibrante y cosmopolit
 3. **Disfrutar de las playas de Bondi y Manly**, perfectas para surfear o relajarse.
 4. **Explorar Darling Harbour**, una zona vibrante con restaurantes, museos y entretenimiento.
 5. **Recorrer los Jardines Botánicos Reales**, un oasis verde en el corazón de la ciudad.
+
+![Qué ver en Sídney: 15 atractivos que te dejarán boquiabierto](https://wp.growproexperience.com/wp-content/uploads/2022/06/Que%CC%81-ver-en-Sydney.jpg)
