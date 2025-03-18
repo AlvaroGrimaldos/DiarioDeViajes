@@ -18,3 +18,5 @@ Miami, ubicada en el estado de Florida, es una de las ciudades más vibrantes de
 3. **Explorar Little Havana**, el corazón de la cultura cubana en Miami.
 4. **Pasear por el Bayside Marketplace**, un centro comercial al aire libre con vistas a la bahía.
 5. **Recorrer el distrito de diseño (Miami Design District)** y disfrutar de tiendas de lujo y arquitectura moderna.
+
+![Miami turismo: qué visitar en Miami, Florida, 2025 | Viaja con Expedia](https://a.travel-assets.com/findyours-php/viewfinder/images/res70/471000/471674-Miami.jpg)
