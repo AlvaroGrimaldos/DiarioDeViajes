@@ -18,3 +18,5 @@ Cartagena, ubicada en la costa caribeña de Colombia, es una ciudad llena de his
 3. **Explorar el barrio Getsemaní**, conocido por su arte callejero, ambiente bohemio y bares animados.
 4. **Disfrutar de una puesta de sol en el Café del Mar**, ubicado sobre las murallas de la ciudad.
 5. **Hacer una excursión a las Islas del Rosario**, un paraíso caribeño con aguas cristalinas.
+
+![Turismo en Cartagena de Indias | Descubre todos sus Rincones](https://media.staticontent.com/media/pictures/9495889e-54f9-40d2-939d-b04bf30b47c7)
