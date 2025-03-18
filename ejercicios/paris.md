@@ -18,3 +18,5 @@ París, la capital de Francia, es una de las ciudades más emblemáticas del mun
 3. **Pasear por los Campos Elíseos** y llegar hasta el Arco de Triunfo.
 4. **Explorar Montmartre**, el barrio bohemio donde se encuentra la Basílica del Sagrado Corazón.
 5. **Disfrutar de un crucero por el Sena** para ver la ciudad desde una perspectiva diferente.
+
+![Reserva habitación en los hoteles Accor | Paris, Francia](https://a.eu.mktgcdn.com/f/100004519/N2BB4ohwclor2uLoZ7XMHgJmxOZaMOokMdQqqXQAq3s.jpg)
