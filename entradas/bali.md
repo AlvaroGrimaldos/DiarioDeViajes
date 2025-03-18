@@ -15,3 +15,11 @@ Bali, conocida como la "Isla de los Dioses", es un destino paradisíaco en Indon
 - **Gastronomía:** No puedes dejar de probar el Nasi Goreng, el Babi Guling y los bowls de frutas tropicales.
 
   
+
+## Cosas para hacer en Bali
+
+1. **Visitar los arrozales de Tegallalang**, un paisaje impresionante en las montañas de Ubud.
+2. **Explorar el Templo de Uluwatu**, ubicado en un acantilado con vistas espectaculares al océano.
+3. **Relajarse en las playas de Nusa Dua y Seminyak**, ideales para el descanso y los deportes acuáticos.
+4. **Sumergirse en la cultura balinesa en Ubud**, con sus galerías de arte, mercados y el Bosque de los Monos.
+5. **Hacer senderismo al Monte Batur** y disfrutar del amanecer desde la cima de este volcán activo.
