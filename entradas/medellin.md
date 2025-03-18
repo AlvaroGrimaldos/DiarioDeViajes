@@ -18,3 +18,5 @@ Medellín, conocida como la "Ciudad de la Eterna Primavera" por su clima agradab
 3. **Explorar la Comuna 13**, con sus coloridos grafitis, escaleras eléctricas y vibrante ambiente cultural.
 4. **Subir en el Metrocable hasta Santo Domingo**, disfrutando de una vista panorámica de la ciudad.
 5. **Visitar el Museo de Antioquia**, que alberga obras de arte y exposiciones sobre la historia de la región.
+
+![Medellín, Colombia, es la tercera de las mejores ciudades de 2022, según  Time Out | CNN](https://media.cnn.com/api/v1/images/stellar/prod/cnne-1237032-03-time-out-worlds-best-cities-2022-medellin.jpg?q=w_1110,c_fill)
