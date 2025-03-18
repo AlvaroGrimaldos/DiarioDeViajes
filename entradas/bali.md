@@ -23,3 +23,5 @@ Bali, conocida como la "Isla de los Dioses", es un destino paradisíaco en Indon
 3. **Relajarse en las playas de Nusa Dua y Seminyak**, ideales para el descanso y los deportes acuáticos.
 4. **Sumergirse en la cultura balinesa en Ubud**, con sus galerías de arte, mercados y el Bosque de los Monos.
 5. **Hacer senderismo al Monte Batur** y disfrutar del amanecer desde la cima de este volcán activo.
+
+![Todo lo mejor que hacer en Bali: playas, templos y más | C-Magazine](https://www.costacruceros.com/content/dam/costa/costa-magazine/articles-magazine/travel/bali-travel/bali_m.jpg.image.694.390.low.jpg)
