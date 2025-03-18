@@ -18,3 +18,5 @@ Roma, la capital de Italia, es una de las ciudades más fascinantes del mundo, c
 3. **Lanzar una moneda en la Fontana di Trevi** y pedir un deseo.
 4. **Pasear por la Plaza Navona** y admirar sus fuentes y edificios históricos.
 5. **Recorrer el Panteón**, una de las construcciones antiguas mejor conservadas.
+
+![Lugares destacados de Roma: qué ver y hacer - Italia.it](https://tourismmedia.italia.it/is/image/mitur/20220127150143-colosseo-roma-lazio-shutterstock-756032350-2?wid=1600&hei=900&fit=constrain,1&fmt=webp)
