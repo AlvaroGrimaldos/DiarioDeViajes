@@ -10,3 +10,11 @@ Sídney, la ciudad más grande de Australia, es un destino vibrante y cosmopolit
 - **Alojamiento:** El centro de la ciudad (CBD) es ideal para estar cerca de las principales atracciones, mientras que Bondi Beach y Manly ofrecen una experiencia costera relajada.
 - **Transporte:** El sistema de transporte público es eficiente, con trenes, autobuses y ferris. La Opal Card es la mejor opción para moverse fácilmente.
 - **Gastronomía:** No puedes dejar de probar el fish and chips, los meat pies y el famoso café australiano.
+
+## Cosas para hacer en Sídney
+
+1. **Visitar la Ópera de Sídney**, uno de los edificios más emblemáticos del mundo.
+2. **Caminar por el Harbour Bridge**, con vistas panorámicas del puerto y la ciudad.
+3. **Disfrutar de las playas de Bondi y Manly**, perfectas para surfear o relajarse.
+4. **Explorar Darling Harbour**, una zona vibrante con restaurantes, museos y entretenimiento.
+5. **Recorrer los Jardines Botánicos Reales**, un oasis verde en el corazón de la ciudad.
