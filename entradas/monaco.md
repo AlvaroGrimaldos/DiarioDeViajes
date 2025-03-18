@@ -18,3 +18,5 @@ Mónaco, un pequeño principado en la Riviera Francesa, es famoso por su lujo, g
 3. **Disfrutar de las vistas desde la Roca de Mónaco**, donde se encuentra el casco antiguo.
 4. **Explorar el Museo Oceanográfico de Mónaco**, con exhibiciones marinas impresionantes.
 5. **Pasear por el puerto de Hércules** y admirar los yates de lujo.
+
+![PORT HERCULE DE MONACO - Qué SABER antes de ir (2025)](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/08/ba/72/68/monte-carlo-harbor.jpg?w=900&h=500&s=1)
