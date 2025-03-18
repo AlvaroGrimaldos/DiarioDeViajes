@@ -18,3 +18,5 @@ Madrid, la vibrante capital de España, es una ciudad llena de historia, arte y 
 3. **Pasear por la Gran Vía**, la calle más emblemática de Madrid llena de tiendas, teatros y restaurantes.
 4. **Explorar el Palacio Real**, la residencia oficial de la familia real española.
 5. **Disfrutar de tapas en el Mercado de San Miguel**, un lugar perfecto para degustar la gastronomía española.
+
+![10 lugares que ver en Madrid antes de morir](https://denomades-blog.imgix.net/blog/wp-content/uploads/2023/11/27150312/granvia.jpg?auto=compress%2Cformat&ixlib=php-3.3.1)
