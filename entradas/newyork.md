@@ -18,3 +18,5 @@ Nueva York, conocida como "La Gran Manzana", es una de las ciudades más icónic
 3. **Explorar Times Square**, el epicentro del entretenimiento con sus luces y pantallas gigantes.
 4. **Subir al Empire State Building o al Top of the Rock** para disfrutar de vistas panorámicas.
 5. **Descubrir el Museo Metropolitano de Arte (MET)**, uno de los museos más importantes del mundo.
+
+![Nueva York - Wikipedia, la enciclopedia libre](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/View_of_Empire_State_Building_from_Rockefeller_Center_New_York_City_dllu.jpg/800px-View_of_Empire_State_Building_from_Rockefeller_Center_New_York_City_dllu.jpg)
